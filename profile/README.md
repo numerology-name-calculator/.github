@@ -1,6 +1,5 @@
-# Welcome to Numerology Name Calculator!
+# Name Numerology Calculator, Unlock the secrets hidden in your name and discover the path to a better life!
 
-**Unlock the secrets hidden in your name and discover the path to a better life.**
 
 Numerology is a powerful tool that can reveal insights into your personality, life purpose, and destiny based on the numbers associated with your name. With our easy-to-use Numerology Name Calculator, you can explore the vibrational frequency of your name and its impact on your life.
 
