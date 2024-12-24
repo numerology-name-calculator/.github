@@ -3,7 +3,7 @@
 
 Numerology has been utilized since ancient times 📅 and is a very effective instrument. Based on your name's linked numbers, it can provide insights about your personality, life's purpose, and destiny. Number rhythm is the foundation of numerology. You can determine your name's vibration frequency  and how it affects your life by utilizing numerology.
 
-<h3><a href="https://numerologychecker.com/name-numerology-calculator">➤ ►👉 Name Numerology Calculator</a></h3>
+<h3><a href="https://numerologychecker.com/numerology-name-calculator">➤ ►👉 Name Numerology Calculator</a></h3>
 
 ## How does name numerology work? 
 Name numerology is predicated on the idea that every letter in the alphabet has a corresponding number. Using methods like the **Pythagorean** or **Chaldean** technique, we determine a special number for your name. This number indicates important facets of your life's path. Knowing this must have been intriguing to you. It will be even more fascinating to you to learn more about it. 🚀
